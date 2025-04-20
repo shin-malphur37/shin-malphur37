@@ -6,6 +6,7 @@
 - 😄 Pronouns: Fuck Pronouns
 - ⚡ Fun fact: Previous 1 Ton Club member, 4 academic degrees, PhD canidate, combination of over 50 certifications, licenses, and certificates.
 - Linkedin only allows you to log 50 certifications
+- Jesus Christ is Lord and Shalom (Peace).
 
 <!---
 shin-malphur37/shin-malphur37 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
