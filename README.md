@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shin-malphur37
 - 👀 I’m interested in the Holy Bible KJV, money, music, women (adult XXs), cars, art, boxing, mixed- martial arts, and sports.
-- 🌱 I’m currently learning better advanced financial concepts, life insurance, and blockchain development.
+- 🌱 I’m currently advancing my knowledge on better advanced financial concepts, life insurance, and blockchain development.
 - 💞️ I’m looking to collaborate on nothing at the moment.
 - 📫 How to reach me jsanfo9@wgu.edu
 - 😄 Pronouns: Fuck Your Pronouns
