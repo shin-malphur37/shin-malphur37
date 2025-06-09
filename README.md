@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @shin-malphur37
-- 👀 I’m interested in the Holy Bible KJV, money, music, women, cars, art, boxing, mixed- martial arts, and sports.
+- 👀 I’m interested in the Holy Bible KJV, money, music, women (adult XXs), cars, art, boxing, mixed- martial arts, and sports.
 - 🌱 I’m currently learning better advanced financial concepts, life insurance, and blockchain development.
 - 💞️ I’m looking to collaborate on nothing at the moment.
 - 📫 How to reach me jsanfo9@wgu.edu
-- 😄 Pronouns: Fuck Pronouns
+- 😄 Pronouns: Fuck Your Pronouns
 - ⚡ Fun fact: Previous 1 Ton Club member, 4 academic degrees, PhD canidate, combination of over 50 certifications, licenses, and certificates.
 - Linkedin only allows you to log 50 certifications
 - Jesus Christ is Lord and Shalom (Peace).
