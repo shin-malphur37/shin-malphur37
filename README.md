@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing at the moment.
 - 📫 How to reach me jsanfo9@wgu.edu
 - 😄 Pronouns: Fuck Your Pronouns
-- ⚡ Fun fact: Previous 1 Ton Club member, 4 academic degrees, PhD canidate, combination of over 50 certifications, licenses, and certificates.
+- ⚡ Fun fact: Previous 1 Ton Club member, 4 academic degrees, PhD canidate, combination of over 50 certifications, licenses, and certificates. Saturday is the correct Sabbath Day.
 - Linkedin only allows you to log 50 certifications
 - Jesus Christ is Lord and Messiah. Shalom (Peace).
 
