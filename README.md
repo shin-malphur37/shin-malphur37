@@ -23,6 +23,10 @@ Favorite Certifications and Licenses Held: Life, Accident, Sickness, Health Insu
 
 Hobbies & Interests: Holy Bible KJV, The Ten Commandments from Exodus 20, The Leviticus Dietary Laws,Jesus Christ as Lord and Messiah (Jesus Christ was a black/negro Jew from the Tribe of Judah as was King David and King Solomon),The Feast Days of the Lord (Passover/Unleavened Bread, Pentecost, Memorial of the Trumpets, Day of Atonement, Feast of Tabernacles, and the Eighth Day Feast), Being a law abiding citizen and not a felon,The United States Constitution 🇺🇸, Music, Sports, Mixed-Martial Arts, Boxing,Bodybuilding, Sports Cars, Muscle Cars, Art, Wine, Beautiful Women (Only adult(18+) XXs can be Women), Mariah Carey’s Ass (backside), Legitimate Education, Nutrition, XRP, BTC, SOL, XLM, TRX, XTZ, ETH, ADA, VET, ATOM, SHIB, BONK, EGGS, DOGE, & Stonks. 🤠
 
+Not a Black Lives Matter supporter.
+Say No to Pride Month.
+Say No to Islam and other false religions.
+
 Matthew 22:21 “They say unto him, Caesar's. Then saith he unto them, Render therefore unto Caesar the things which are Caesar's; and unto God the things that are God's.”
 
 Leviticus 18:22 “Thou shalt not lie with mankind, as with womankind: it is abomination.”
