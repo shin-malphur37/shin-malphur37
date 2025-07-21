@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing at the moment.
 - 📫 How to reach me jsanfo9@wgu.edu
 - 😄 Pronouns: Fuck Your Pronouns
-- ⚡ Fun facts: Previous 1 Ton Club member, 4 academic degrees, PhD canidate, combination of over 50 certifications, licenses, and certificates. Saturday is the correct Sabbath Day.
+- ⚡ Fun facts: Previous 1 Ton Bodybuilder Club member, 4 academic degrees, PhD canidate, combination of over 50 certifications, licenses, and certificates. Saturday is the correct Sabbath Day.
 - Linkedin only allows you to log 50 certifications
 - Jesus Christ is Lord and Messiah. Shalom (Peace).
 - My name is Joshua Sanford Israel Foundational Black American🇺🇸Man XY
@@ -21,7 +21,7 @@ Buy the dip! This is the way!
 
 Favorite Certifications and Licenses Held: Life, Accident, Sickness, Health Insurance License Data Scientist License Certified Blockchain Architect Certified Blockchain & Finance Professional LPI Linux Essentials Online Degree Cryptocurrency & Trading Cybersecurity Analytics Professional(Sec+.& CySa+) Computer Hacking Forensics Investigator Certified Network Defense Architect
 
-Hobbies & Interests: Holy Bible KJV, The Ten Commandments from Exodus 20, The Leviticus Dietary Laws,Jesus Christ as Lord and Messiah (Jesus Christ was a black/negro Jew from the Tribe of Judah as was King David and King Solomon),The Feast Days of the Lord (Passover/Unleavened Bread, Pentecost, Memorial of the Trumpets, Day of Atonement, Feast of Tabernacles, and the Eighth Day Feast), Being a law abiding citizen and not a felon,The United States Constitution 🇺🇸, Music, Sports, Mixed-Martial Arts, Boxing,Bodybuilding, Chess, Sports Cars, Muscle Cars, Art, Wine, Beautiful Women (Only adult(18+) XXs can be Women), Mariah Carey’s Ass (backside), Legitimate Education, Nutrition, XRP, BTC, SOL, XLM, TRX, XTZ, ETH, LINK, ADA, VET, ATOM, SHIB, BONK, EGGS, DOGE, & Stonks. 🤠
+Hobbies & Interests: Holy Bible KJV, The Ten Commandments from Exodus 20, The Leviticus Dietary Laws,Jesus Christ as Lord and Messiah (Jesus Christ was a black/negro Jew from the Tribe of Judah as was King David and King Solomon),The Feast Days of the Lord (Passover/Unleavened Bread, Pentecost, Memorial of the Trumpets, Day of Atonement, Feast of Tabernacles, and the Eighth Day Feast), Being a law abiding citizen and not a felon,The United States Constitution 🇺🇸, Music, Sports, Mixed-Martial Arts, Boxing,Bodybuilding, Chess, Sports Cars, Muscle Cars, Art, Wine, Beautiful Women (Only adult(18+) XXs can be Women), Mariah Carey’s Ass (backside), Legitimate Education, Nutrition, XRP, BTC, SOL, XLM, TRX, XTZ, ETH, LINK, ADA, VET, ATOM, SHIB, WEN, BONK, ANI, EGGS, DOGE, BNB, & Stonks. 🤠
 
 Not a Black Lives Matter supporter.
 Say No to Pride Month.
