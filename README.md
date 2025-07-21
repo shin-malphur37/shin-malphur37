@@ -37,6 +37,14 @@ Deuteronomy 23:1 “He that is wounded in the stones, or hath his privy member c
 
 Deuteronomy 23:17 “There shall be no whore of the daughters of Israel, nor a sodomite of the sons of Israel.” King James Version (KJV)
 
+Genesis 2:2
+“And on the seventh day God ended his work which he had made; and he rested on the seventh day from all his work which he had made.” (Saturday is the Sabbath Day)
+
+Philippians 2:11
+“And that every tongue should confess that Jesus Christ is Lord, to the glory of God the Father.”
+
+King James Version (KJV) 
+
 Personality: ENTJ-A The Commander/Marshal, Ennegram Type 8W7 Challenger, Animal In You: Sable Personality, Year of the Ram 🐏
 
 -Shin Malphur37
