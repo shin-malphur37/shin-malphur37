@@ -7,7 +7,7 @@
 - ⚡ Fun facts: Previous 1 Ton Bodybuilder Club member, 4 academic degrees, PhD canidate, combination of over 50 certifications, licenses, and certificates. Saturday is the correct Sabbath Day.
 - Linkedin only allows you to log 50 certifications
 - Jesus Christ is Lord and Messiah. Shalom (Peace).
-- My name is Joshua Sanford Israel Foundational Black American🇺🇸Man XY (Alabama Native)
+- My name is Joshua Sanford Israel Foundational Black American🇺🇸Man XY (Harvest, Alabama Native)
 
 Currently completing my PhD in Information Technology with a specialization in Global Business with Blockchain Technology.
 
