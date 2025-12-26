@@ -22,6 +22,7 @@ Buy the dip! This is the way!
 Favorite Certifications and Licenses Held: Life, Accident, Sickness, Health Insurance License, Certified Data Scientist, Certified Blockchain Architect, Certified Blockchain & Finance Professional, LPI Linux Essentials, Online Degree Cryptocurrency & Trading, Cybersecurity Analytics Professional(Sec+.& CySa+), Computer Hacking Forensics Investigator, Certified Network Defense Architect
 
 Hobbies & Interests: Holy Bible KJV, The Ten Commandments from Exodus 20, The Leviticus Dietary Laws,Jesus Christ as Lord and Messiah (Jesus Christ was a black/negro Jew from the Tribe of Judah as was King David and King Solomon),The Feast Days of the Lord (Passover/Unleavened Bread, Pentecost, Memorial of the Trumpets, Day of Atonement, Feast of Tabernacles, and the Eighth Day Feast), Being a law abiding citizen and not a felon,The United States Constitution 🇺🇸, Music, Sports, Mixed-Martial Arts, Boxing,Bodybuilding, Chess, Sports Cars, Muscle Cars, Art, Wine, Beautiful Women (Only adult(18+) XXs can be Women), Mariah Carey’s Ass (backside), Legitimate Education, Nutrition, SOL, XRP, XLM, WEN, BONK, ANI, & Stonks. 🤠
+#TeamLinux
 
 Not a Black Lives Matter supporter.
 Say No to Pride Month.
