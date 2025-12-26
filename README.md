@@ -13,13 +13,13 @@ Currently completing my PhD in Information Technology with a specialization in G
 
 President and Owner of Onyx Imperium LLC
 
-Job Roles: Systems administrator Cybersecurity Engineer Blockchain Engineer Automation Engineer DevSecOps Developer Cybersecurity Analyst Financial Advisor
+Job Roles: Systems administrator, Cybersecurity Engineer, Blockchain Engineer, Automation Engineer, DevSecOps Developer, Cybersecurity Analyst, Financial Advisor
 
 I have worked in a professional capacity in both the fields of finance and technology. As a technologists I have many interests in many technical fields that intersect with finance as both finance and technology are two of my favorite passions. Hence the reason that my doctoral program is a combination of both business and technology. Fintech is an emerging field of study, however I have been familiar with this field since first learning about Bitcoin back in my undergraduate years at university.
 
 Buy the dip! This is the way!
 
-Favorite Certifications and Licenses Held: Life, Accident, Sickness, Health Insurance License Data Scientist License Certified Blockchain Architect Certified Blockchain & Finance Professional LPI Linux Essentials Online Degree Cryptocurrency & Trading Cybersecurity Analytics Professional(Sec+.& CySa+) Computer Hacking Forensics Investigator Certified Network Defense Architect
+Favorite Certifications and Licenses Held: Life, Accident, Sickness, Health Insurance License, Certified Data Scientist, Certified Blockchain Architect, Certified Blockchain & Finance Professional, LPI Linux Essentials, Online Degree Cryptocurrency & Trading, Cybersecurity Analytics Professional(Sec+.& CySa+), Computer Hacking Forensics Investigator, Certified Network Defense Architect
 
 Hobbies & Interests: Holy Bible KJV, The Ten Commandments from Exodus 20, The Leviticus Dietary Laws,Jesus Christ as Lord and Messiah (Jesus Christ was a black/negro Jew from the Tribe of Judah as was King David and King Solomon),The Feast Days of the Lord (Passover/Unleavened Bread, Pentecost, Memorial of the Trumpets, Day of Atonement, Feast of Tabernacles, and the Eighth Day Feast), Being a law abiding citizen and not a felon,The United States Constitution 🇺🇸, Music, Sports, Mixed-Martial Arts, Boxing,Bodybuilding, Chess, Sports Cars, Muscle Cars, Art, Wine, Beautiful Women (Only adult(18+) XXs can be Women), Mariah Carey’s Ass (backside), Legitimate Education, Nutrition, SOL, XRP, XLM, WEN, BONK, ANI, & Stonks. 🤠
 
